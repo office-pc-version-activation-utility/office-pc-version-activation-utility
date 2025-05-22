@@ -1,0 +1,1 @@
+# office-pc-version-activation-utility
